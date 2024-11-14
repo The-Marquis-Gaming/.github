@@ -16,6 +16,6 @@ Key features:
 Our goal: Create a fun, interactive gaming environment for board game enthusiasts worldwide.
 
 Download:
-[App Store](https://apps.apple.com/us/app/your-app-name/id0000000000) | [Google Play](https://play.google.com/store/apps/details?id=com.yourcompany.yourapp)
+[App Store](https://apple.co/4ewOFAG) | [Google Play](https://bit.ly/GooglePlay_TheMarquis)
 
 Join us in revolutionizing online board gaming!
