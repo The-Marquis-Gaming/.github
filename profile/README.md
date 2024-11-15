@@ -15,8 +15,11 @@ Key features:
 
 Our goal: Create a fun, interactive gaming environment for board game enthusiasts worldwide.
 
-Download:
-[App Store](https://apple.co/4ewOFAG) | [Google Play](https://bit.ly/GooglePlay_TheMarquis) | [Discord](https://discord.gg/NXm5FNxU)
+Download on:
+[App Store](https://apple.co/4ewOFAG) | [Google Play](https://bit.ly/GooglePlay_TheMarquis)
+
+Visit our:
+[Website](https://themarquis.xyz/login) | [Discord](https://discord.gg/NXm5FNxU) | [X](https://x.com/TheMarquisOnX) | [linktr.ee](https://linktr.ee/themarquis_)
 
 
 Join us in revolutionizing online board gaming!
