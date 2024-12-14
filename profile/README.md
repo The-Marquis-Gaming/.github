@@ -19,7 +19,7 @@ Download on:
 [App Store](https://apple.co/4ewOFAG) | [Google Play](https://bit.ly/GooglePlay_TheMarquis)
 
 Visit our:
-[Website](https://themarquis.xyz/login) | [Discord](https://discord.gg/NXm5FNxU) | [X](https://x.com/TheMarquisOnX) | [linktr.ee](https://linktr.ee/themarquis_)
+[Website](https://themarquis.xyz/login) | [Discord](https://discord.gg/SC5Am6UG) | [X](https://x.com/TheMarquisOnX) | [linktr.ee](https://linktr.ee/themarquis_)
 
 
 Join us in revolutionizing online board gaming!
